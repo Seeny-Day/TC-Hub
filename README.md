@@ -1,1 +1,1 @@
-# TC-Hub
+# https://discord.com/tchub
